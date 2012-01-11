@@ -1,0 +1,1 @@
+<p>&copy;2011 | Design by Mario Onekanda | Telefon: (+46)87519809 | E-post: <a href="mailto:mario.onekanda@gmail.com">mario.onekanda@gmail.com</a></p>
